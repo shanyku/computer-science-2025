@@ -1,3 +1,3 @@
 # computer-science-2025
-## 古亘伶
-### 桃園中壢人
+## 古亘伶  KU HSUAN LING
+### 桃園中壢人    from Zhongli, Taoyuan
