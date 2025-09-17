@@ -24,6 +24,10 @@
 <img width="412" height="430" alt="未命名設計" src="https://github.com/user-attachments/assets/1542114a-46ab-4e59-86bb-4d954d16fcbe" />
 
 ![1000010800](https://github.com/user-attachments/assets/f318f00a-3da3-4b3b-a8c3-0d3ce9390607)
+
+### * 堅持倒爺
+![学生の剣持リスナーさんどうぞ](https://github.com/user-attachments/assets/36df9c94-2a44-4d86-a642-f88dd817ab57)
+
 ### * 世界計畫
 ![1000011979](https://github.com/user-attachments/assets/ad2b2863-776a-4b62-a3bb-86bf8e6d14b2)
 ### * 崩鐵
